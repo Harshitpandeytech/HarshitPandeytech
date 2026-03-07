@@ -1,6 +1,6 @@
 <img align="right" src="https://media.tenor.com/UmNa23oz-RIAAAAm/spider-transparent-background.webp" width="200">
 
-## 👋 Hey, I’m Harshit
+## 👋 Hey, I’m Harshit 
 
 CS UnderGrad, builder, and professional problem-solver.  
 I love learning, breaking things, and then fixing them better.  
