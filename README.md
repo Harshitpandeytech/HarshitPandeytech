@@ -8,4 +8,4 @@ Lazy on some days, unstoppable on others — but the work always gets done.
 Powered by curiosity, chaos, and teamwork.
 
 ![Meme](https://media.tenor.com/Csfm8xOrdJcAAAAi/fatality.gif)
-<img width="200" height="200" alt="182244f32a5fa2b64594d1ddd79af872" src="https://github.com/user-attachments/assets/639d07dd-4841-4bf3-bedb-d1c7a4acad59" />
+![Meme](https://i.pinimg.com/originals/0a/28/51/0a2851359bb66b0905934586601d6412.gif)
