@@ -1,4 +1,4 @@
-<img align="right" src="https://media.tenor.com/UmNa23oz-RIAAAAm/spider-transparent-background.webp" width="200">
+<img align="right" src="[https://media.tenor.com/UmNa23oz-RIAAAAm/spider-transparent-background.webp](https://i.pinimg.com/originals/18/22/44/182244f32a5fa2b64594d1ddd79af872.gif)" width="200">
 
 ## 👋 Hey, I’m Harshit 
 
